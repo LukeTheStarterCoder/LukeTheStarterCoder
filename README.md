@@ -2,6 +2,6 @@
 - 👀 I’m interested in Tech, computers, cyber security, and law enforment, planning to take a carrer in that, and I like the US Constitution
 - 🌱 I’m currently learning coding, be better at art, and more about the US constitution.
 - 💞️ I’m looking to collaborate on revolt, and other projects.
-- 📫 How to reach me is by email, at nathanwhatever123z@gmail.com, or discord at certifiedb0ykisser.
-- 😄 Pronouns: he/him
+- 📫 How to reach me is by email, at nathanwhatever123z@gmail.com, or discord at certifiedb0ykisser, or revolt name is LukeTheCutie#0417.
+- 😄 Pronouns: he/him.
 - ⚡ Fun fact: I like thigh highs, and a femboy, and furry.
