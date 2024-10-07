@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on revolt, and other projects.
 - 📫 How to reach me is by email, at nathanwhatever123z@gmail.com, or discord at certifiedb0ykisser, or revolt name is LukeTheCutie#0417.
 - 😄 Pronouns: he/him.
-- ⚡ Fun fact: I like thigh highs, and a femboy, and furry.
+- ⚡ Fun fact: I like thigh highs, and a femboy, and furry as you could not tell on my profile.
